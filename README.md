@@ -1,6 +1,6 @@
 " how unbelievable! "
 ![FB_IMG_1761378171882](https://github.com/user-attachments/assets/26e0fa8e-00a5-4a5e-b03c-fa2026f5d66f)
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀⠀⠀" It's so shocking! "
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀" that's so shocking! "
 
 ⠀ ⠀ ⠀⏔⏔⏔⏔⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔⏔⏔⏔⏔
 
