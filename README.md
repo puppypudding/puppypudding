@@ -11,3 +11,6 @@
 DM me on discord if you want to ask me anything about the document 
 
 → ( @puddingpaw )
+
+
+if u befriend me ill draw your sona or your favorite character or your f/o trusu PLEASE I NEED FRIENDS
