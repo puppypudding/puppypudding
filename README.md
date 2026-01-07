@@ -9,7 +9,6 @@
  ⠀ ⠀.°•`≈★  she  / they  /  any  ! . . .
  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀suspected ptsd(?)
 
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ Basic dni + generative ai users dni thanks 
- also i block freely
+ ⠀ ⠀ ⠀ ⠀ ⠀Basic dni + i block freely lmao
 
-⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀friend me please❤️
+⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀i like yuri
