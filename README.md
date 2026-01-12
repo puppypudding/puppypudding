@@ -7,7 +7,7 @@
 (*me and my stupid fandom that likely nobody knows*)
 
  ⠀ ⠀.°•`≈★  she  / they  /  any  ! . . .
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀suspected ptsd(?)
+ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀suspected c-ptsd(?)
 
  ⠀ ⠀ ⠀ ⠀ ⠀Basic dni + i block freely lmao
 
