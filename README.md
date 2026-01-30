@@ -14,3 +14,5 @@
 ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀i like yuri
 
 i know im highkey shy but whatever whatever...
+
+is my interest considered niche/silly
