@@ -12,3 +12,5 @@
  ⠀ ⠀ ⠀ ⠀ ⠀Basic dni + i block freely lmao
 
 ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀i like yuri
+
+i know im highkey shy but whatever whatever...
